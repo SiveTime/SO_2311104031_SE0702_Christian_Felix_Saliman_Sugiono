@@ -1,0 +1,1 @@
+Sistem Operasi dan lainya i dunno man
